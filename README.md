@@ -1,4 +1,4 @@
-### Hello Humans ❤️
+### Hello Humans!
 
 I am a student of statistics, environmental science, and economics–striving to make the world a little better. Any support is much appreciate ❤️
 
